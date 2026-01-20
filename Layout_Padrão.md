@@ -1,0 +1,23 @@
+❓ Necessidades não atendidas
+
+ 🏹 Objetivos
+
+🗣️Quem impacta?
+
+💪Tarefas que queremos fazer
+
+ - Quando eu
+
+ - Eu quero
+
+ - Para poder
+
+ 📄Algum histórico
+
+👀Restrições
+
+🗺️ Explorações + Decisões
+
+👣 Próximas etapas
+
+📈 Impacto
